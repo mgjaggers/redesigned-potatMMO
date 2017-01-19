@@ -1,1 +1,1 @@
-Scratch directory while I'm still figuring this stuff out.
+Scratch directory while I'm still figuring out organization.
